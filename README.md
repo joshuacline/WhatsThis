@@ -14,6 +14,6 @@ They've infiltrated your friends and your family over the years while you've bee
 
 <a href="https://" target="_blank"><img src="whatisthis011.jpg" alt=" " width="720"/></a>
 
-<a href="https://" target="_blank"><img src="whatisthis006.jpg" alt=" " width="720"/></a>
+<a href="https://" target="_blank"><img src="whatisthis006a.jpg" alt=" " width="720"/></a>
 
-Note: This picture was kept completely private until afterwards. Don't drop the soap. 👌🤡🚨
+<a href="https://" target="_blank"><img src="whatisthis050.jpg" alt=" " width="720"/></a>
